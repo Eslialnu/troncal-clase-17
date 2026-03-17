@@ -2,4 +2,4 @@
 ### cómo estás?
 
 bah
-! [foto para subir] 
+ [foto para subir] 
